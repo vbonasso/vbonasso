@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @vbonasso
+- 👀 I’m interested in games and music
+- 🌱 I’m currently learning schedule
+- 💞️ I’m looking to collaborate on scholl
+- 📫 How to reach me house
+- 
