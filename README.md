@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @vbonasso
-- 👀 I’m interested in games and music
-- 🌱 I’m currently learning schedule
-- 💞️ I’m looking to collaborate on scholl
-- 📫 How to reach me house
-- 
+Me chamo Vitor Dias
+tenho 15 anos 
+sou de exatas
+curto games e musica
+Pretendo seguir na área de tecnologia ou medicina...
+Rumo ao HEXA!!!!
